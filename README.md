@@ -5,7 +5,6 @@
 <br>
 💬 Ask me about food and traveling
 <br>
-🐶 A fun fact about me is that I have four dogs
 
 
 
